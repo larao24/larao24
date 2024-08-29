@@ -1,6 +1,6 @@
 - 👋 Oie, sou a Lara Júlia!
 - 👀 Estou interessada em terminar o ensino médio,
-- 🌱 EStudando atualmente no Col. Est. do Campo Santos Dumont
+- 🌱 Estudando atualmente no Col. Est. do Campo Santos Dumont
 - 💞️ Gosto de ficar em casa,
 - 📫 É isso e....
 - 😄 Tchauuuu!
